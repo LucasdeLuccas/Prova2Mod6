@@ -40,7 +40,7 @@ O HaarCascade é amplamente utilizado e documentado, com implementações dispon
 # Vencedor da bola de ouro
 
 O vencedor da bola de ouro, na minha opinião será o **Vini Jr** ou o **Phil Foden**.
-Mas não duvido nada que o **Messi** ganhe novamente... Já que ele fez um golaço no jogo-treino do Inter Miami.
+MAAAS não duvido nada que o **Messi** ganhe novamente... Já que ele fez um GOLAÇO no jogo-TREINO do Inter Miami.
 
 
 # The Real Goat's:
